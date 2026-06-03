@@ -1,4 +1,4 @@
-# 
+# Instantâneo momentum trading bot extensões para Mac OS | Melhor momentum trading bot extensões para PC Windows. Com pools de liquidez DEX e análise de book de ordens — otimizado para máximo desempenho em cada plataforma.
 
 
 
